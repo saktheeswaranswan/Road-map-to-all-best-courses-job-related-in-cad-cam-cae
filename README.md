@@ -180,6 +180,8 @@ https://www.udemy.com/course/bim-execution-plan-case-study-bim-for-contractor-be
 
 https://www.udemy.com/course/creo-elements-direct-modeling-express-the-complete-course/?couponCode=MT260825G2
 
+https://www.udemy.com/course/creo-elements-direct-modeling-express-the-complete-course/?couponCode=MT260825G2
+
 
 
 
